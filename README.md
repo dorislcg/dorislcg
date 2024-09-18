@@ -10,8 +10,10 @@
 - 😄 Pronouns: ela/dela
 - ⚡ Fun fact: faço curso de gastronomia 
 
-![Alt](
 
+![unnamed](https://github.com/user-attachments/assets/14643717-0a3a-4da3-8012-5e1f0e5d7d91)
+
+![IMG_4014](https://github.com/user-attachments/assets/82249435-4f51-4013-b586-d2d9a11a24ef)
 
 <!---
 dorislcg/dorislcg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
